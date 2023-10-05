@@ -1,2 +1,0 @@
-# Instalador multiconversa.com
- 
